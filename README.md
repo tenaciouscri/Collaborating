@@ -12,5 +12,5 @@ and beer yeast and let it rise. Secondly, spread out the dough in a
 round shape. Then, add the tomato sauce and as much mozzarella as you 
 like. Bake it and enjoy!
 
-###serendipity:### the occurrence and development of events by chance in a 
+*** serendipity: the occurrence and development of events by chance in a 
 happy or beneficial way. "a fortunate stroke of serendipity"
